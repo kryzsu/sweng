@@ -1,1 +1,7 @@
 # sweng
+
+CSapat nev
+
+tagok
+
+
